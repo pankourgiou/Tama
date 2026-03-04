@@ -1,3 +1,4 @@
 # Tama
 μία μίνι σύνοψη: Δρόμο παίρνω δρόμο αφήνω, δρόμο παίρνω δρόμο αφήνω, βρίσκομαι στο δρόμο του Αγίου Ιακώβου..είχα κάνει τάμα λέω θα γυρίσει ο τροχός...δε θα γυρίσει? μετά όμως να σας πώ και το άλλο Σελήνη/'Αρη το κανα σε 15 λεπτά   μετά από Άρη για Ισπανία/Ισραήλ μου πήρε 2 χρόνια!! Μαντεψτε γιατί...
 Και ένα μίνι κουίζ γνώσεων αν η γυναίκα ενός αστροναύτη φορολογείται...ο αστροναύτης φορολογείται? γιατί βλέπω μία κουκίδα στο διάστημα να πηγαίνει γύρω-γύρω-γύρω-γύρω και ένα πόντιο να πληρώνει και εφορία.
+Impostand: https://www.skai.gr/news/greece/magda-fyssa-gia-apofasi-efeteiou-feygo-anakoufismeni-den-tha-tous-ksanado-sti-zoi-mou     I win-->many people win--> you know why? because in action we have to burn-the-root of nazism, and never go back to this idea...and that's true statement.
